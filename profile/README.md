@@ -1,5 +1,5 @@
 # UNSW Quantitative Finance and Trading Society
-Enquiries: unsw (stop) quantsoc (arobase symbol) gmail (stop) com
+Enquiries: [unsw.quantsoc@gmail.com](mailto:unsw.quantsoc@gmail.com)
 
 **[Facebook](https://www.facebook.com/unswquantsoc)**
 
